@@ -1,3 +1,5 @@
 # antidate
 Please don't date on roblox!
-If you need a good kitten short dreadhead eboy please contact @apn9 on discord.
+
+> [!WARNING]
+> This site does not promote dating on roblox and is actually against it.
